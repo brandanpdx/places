@@ -1,4 +1,4 @@
-# _Address Book - January 27, 2020_
+# _Vacation/Places Log - January 27, 2020_
 
 #### By _**Brandan Sayarath and Zakkrey Short**_
 
